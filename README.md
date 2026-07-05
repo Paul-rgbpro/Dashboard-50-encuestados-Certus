@@ -1,1 +1,0 @@
-# Dashboard-50-encuestados-Certus
